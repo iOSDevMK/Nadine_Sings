@@ -166,8 +166,6 @@ Cole Porter schrieb „Night and Day“ als Lied über eine Liebe ohne Pause. De
 
 ## CHANSON FRANÇAIS
 
-## CHANSON FRANÇAIS
-
 ### Milord  
 *1959 (France) – Marguerite Monnot · Édith Piaf*
 
